@@ -14,5 +14,5 @@ When it comes to the act of programming itself, I enjoy the challenging puzzles 
 
 My core skills come from having previously worked on and managed teams. This motivates me to find an ideal environment where everyone on the team supports and teaches each other. Everyone of us would get to grow become better at our craft, synergistically. An environment like this would help me reach both of my goals. One of which is to become a specialized and skillful individual who is a needed piece of company and/or project. And the other is to continually grow and get better as a person and developer.
 
-> "From what I have seen, and this comes in many forms, happiness comes from an individual's ability to create grow or progress in their life."
+> "From what I have seen, and this comes in many forms, happiness comes from an individual's ability to create growth or progress in their life."
 >> -Anthony Robbins
