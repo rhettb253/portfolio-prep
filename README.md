@@ -16,3 +16,5 @@ My core skills come from having previously worked on and managed teams. This mot
 
 > "From what I have seen, and this comes in many forms, happiness comes from an individual's ability to create growth or progress in their life."
 >> -Anthony Robbins
+
+What Excites Me about Tech: Today's technological advancements leave me speachless: from breathtaking computer generated imaging, to bewildering artificial intelligence, to machine learning and the capabilities of advanced robotics. There are not many careers that offer a person such in-depth incites into today's cutting-edge technological revolutions.
